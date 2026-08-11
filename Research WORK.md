@@ -1,6 +1,9 @@
 
+
 > ## Research WORK
 
+- [9802-023-002-3307-T.pdf](https://github.com/user-attachments/files/30939819/9802-023-002-3307-T.pdf)
+  
 - [9802-023-002-3307-R.pdf](https://github.com/user-attachments/files/30939739/9802-023-002-3307-R.pdf)
 
 - [9802-023-002-3307-F.pdf](https://github.com/user-attachments/files/30939734/9802-023-002-3307-F.pdf)
